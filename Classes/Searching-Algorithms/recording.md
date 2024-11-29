@@ -1,2 +1,2 @@
 ## Class recording Link
-[Watch on YouTube](https://youtube.com/your-video-link)
+[Watch on YouTube](https://youtu.be/dFZZOuwYAvE)
